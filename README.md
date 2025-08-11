@@ -1,8 +1,17 @@
-# krishna\_collab
+ krishna_collab
 
-\\team collab work
+team collab work
 
-\\yooo how ya doin' ?
+yooo how ya doin' ?
 
-\\what are you doing Krrish.
+hahahahah
+
+yooo how ya doin' ?
+
+what are you doing Krrish.
+
+am doing good, wbu??
+
+
+
 
